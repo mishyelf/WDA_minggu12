@@ -1,2 +1,0 @@
-# WDA_minggu12
-
